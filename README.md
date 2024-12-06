@@ -1,4 +1,4 @@
-## Hi there 👋
+## I'm straight up "coding it" and by it, lets just say my projects B)
 
 <!--
 **LargeBoiii/LargeBoiii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
